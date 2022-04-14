@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Debasmit-Das
-- 👀 I’m a CS student 
+- 👀 I’m a CS 2nd yr Undergrad 
 - 🌱 I’m currently learning how to code in various languages
 - 📫 reach me at debasmit21@gmail.com
 - 🧾i don't need sleep i need answers
